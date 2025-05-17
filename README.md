@@ -1,1 +1,1 @@
-This is my personal portfolio! Check it put.
+This is my personal portfolio! Check it out.
